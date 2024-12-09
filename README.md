@@ -10,6 +10,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
+* Something interesting about me is I can swim backstroke but I cannot float.
+* Ask Mr. Vu anything: Can you breakdance?
+* List your sports and extracurriculars you participate in: Sleeping
